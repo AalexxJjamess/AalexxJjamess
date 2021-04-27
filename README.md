@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I've been conflicted recently, because I find that I like a little of everything and I am subjected to people who are rewarded for liking very few things.
+I've been conflicted recently, because I find that I like a little of everything and I am subjected to people who are rewarded for enjoying very few things, but enjoying them to their fullest potential.
 
 <!--
 **AalexxJjamess/AalexxJjamess** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
