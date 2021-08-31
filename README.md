@@ -1,6 +1,5 @@
-### Hi there 👋
+### Hi there there there there there there there there therer there👋
 
-I've been conflicted recently, because I find that I like a little of everything.
 <!--
 **AalexxJjamess/AalexxJjamess** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
